@@ -1,0 +1,2 @@
+**story**
+some child garbs a onion attempt to eat and it living onion and talka Tree throws it branches over the child throwing him over to the cows. which they want onion and for some reason the child thinks of tree and tree tell him to protec onion he run to grandma house but grandma vegan so she want onion
